@@ -5,8 +5,8 @@ I'm a 3rd-year Information Technology student at CBIT, passionate about coding a
 -> Exploring the fascinating world of AI/ML with hands-on projects in machine learning and beyond.
 
 
-LinkedIn: [https://linkedin.com/in/akshithareddydoma/](https://linkedin.com/in/manobhi-ram-reddy)  
-Email: [akshithareddydoma7@gmail.com](mailto:akshithareddydoma7@gmail.com)
+LinkedIn: [https://linkedin.com/in/manobhi-ram-reddy/](https://linkedin.com/in/manobhi-ram-reddy/)  
+Email: [manobhireddy0@gmail.com](mailto:manobhireddy0@gmail.com)
 
 
 
