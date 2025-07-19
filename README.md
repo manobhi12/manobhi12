@@ -6,7 +6,6 @@ I'm a 4th-year Information Technology student at CBIT, passionate about coding a
 
 
 LinkedIn: [https://linkedin.com/in/manobhi-ram-reddy/](https://linkedin.com/in/manobhi-ram-reddy/)  
-Email: [manobhireddy0@gmail.com](mailto:manobhireddy0@gmail.com)
 
 
 
